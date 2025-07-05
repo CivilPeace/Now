@@ -1,5 +1,9 @@
 # Civil Protocol
 A framework and platform for a Civil Economy.  Civil Peace is possible when inflation on property, goods and services are low or even negative.  Resident Owned Communities are built as commercial commons for the benefit of Residents and the surrounding areas.  We create a Network Effect, Civil Effect and a commercial commons that together is an unmatched force in any economic system known.  This is due to the fact that no other program, platform or system works directly at the root causes of inflation.   Private, public or personal inflationary cost of living or operating businesses are dramatically reduced or eliminated.  We can Live, Work, Eat and Play at a lower inflationary cost then by any other economic means.  
+
+The Purpose of Civil Protocol
+Establish and fund resident owned communities that have a low overhead commercial commons.  
+
 # How
 1st.) Civil Peace starts with Residents owning their land and housing.   As with standard Resident owned communities, Civil Communities also have a share price for land and pay a monthly maintenance fee to live or operate a for-benefit business.     
 2nd.) A commercial commons is established within the Resident Owned Community.  This creates a low overhead business network that allows businesses to offer lower prices to residents and visitors.  The business that operates within a Civil Community by nature becomes a for-benefit enterprise.  This is funded by the share price paid and monthly lot maintenence fee and a 3% network fee.
