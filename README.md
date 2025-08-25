@@ -26,4 +26,75 @@ Civil Peace mighty not be sexy... though how it works is F'ing amazing!
 Network Effect + Civil Peace (Civil Effect) + commercial Civil Commons creates the highest multiplying factor of all efforts.
 Long live, Civil Capitalism.
 
-All of this without the help or hindrance of socialism, mutualism, meritism, collectivism, or communalism.  None of these ism's have a verifiable or sustainable civil benefit to society.  Community financed Reseident owned communities with a commercial commons slows or completely reverses inflation.  That is, in part why traditional Resident owned communities have lot rent costs of only $125/month.  Where else can anyone live without govenment subsidies for $125/month.  In addition through commercial commons businesses the residents and visitors will be able to eat, play and shop at the lowest prices found anywhere.  Non-residents will flock to Civil Communites for their shopping, further building and expanding Resident Owned Communities.  World wide civil peace starts with US.  One resedient owned property or Civil Benefit Organization at a time.
+All of this without the help or hindrance of socialism, mutualism, meritism, collectivism, or communalism.  None of these ism's have a verifiable or sustainable civil benefit to society.  Community financed Resident owned communities with a commercial commons slows or completely reverses inflation.  That is, in part why traditional Resident owned communities have lot rent costs of only $125/month.  Where else can anyone live without govenment subsidies for $125/month.  In addition through commercial commons businesses the residents and visitors will be able to eat, play and shop at the lowest prices found anywhere.  Non-residents will flock to Civil Communites for their shopping, further building and expanding Resident Owned Communities.  World wide civil peace starts with US.  One resedient owned property or Civil Benefit Organization at a time.
+
+# Civil Protocol Network
+
+http://CIVIL.fi
+http://icivil.com
+http://civilarmy.com
+http://civilbenefit.com
+http://civilbots.com
+http://civilbusinesses.com
+http://civilcapitalism.com
+http://civilcash.com
+http://civilcasino.com
+http://civilcause.com
+http://civilcertified.com
+http://civilcharity.com
+http://civilchurch.com
+http://civilclinics.com
+http://civilcommunities.com
+http://civilcontent.com
+http://civilcoop.com
+http://civilcooperative.com
+http://civilcountry.com
+http://civilcredit.com
+http://civilcross.com
+http://civilcrypto.com
+http://civilcurrency.com
+http://civilcy.com
+http://civildeed.com
+http://civildistribution.com
+http://civileconomics.com
+http://civileconomy.com
+http://civileffect.com
+http://civilethics.com
+http://civilfare.com
+http://civilfarm.com
+http://civilfood.com
+http://civilgain.com
+http://civilgood.com
+http://civilgovernance.com
+http://civilindustry.com
+http://civilinternet.com
+http://civilkind.com
+http://civilknowledge.com
+http://civillabor.com
+http://civillove.com
+http://civilmachines.com
+http://civilmorality.com
+http://civilnft.com
+http://civilpath.com
+http://civilpeace.com
+http://civilplatform.com
+http://civilplay.com
+http://civilplaza.com
+http://civilpolitics.com
+http://civilpolls.com
+http://civilproduction.com
+http://civilprogress.com
+http://civilproperty.com
+http://civilprotocol.com
+http://civilpurpose.com
+http://civilquotient.com
+http://civilreserves.com
+http://civilresource.com
+http://civilrule.com
+http://civilship.com
+http://civilsourcing.com
+http://civiltoken.com
+http://civiltokens.com
+http://civiluniversity.com
+http://civilwealth.com
+http://civilworld.com
